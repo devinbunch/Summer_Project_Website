@@ -10,4 +10,4 @@ You must include three genres of work (for example: text, graph, pictures, music
 The title of your website should be “What would make you care about ________?”
 Include one section on what others can do to help
 
-What  would make you care about Human Sex Trafficing? If it was someone you knew? If it was your own daughter.
+What  would make you care about Human Sex Trafficking? If it was someone you knew? If it was your own daughter.
